@@ -30,7 +30,7 @@ Hacked Files👇   | Download Link👇
 *Jurassic Survival Mod apk* | [Download](https://android-1.com/en/file_4592-dw.html/) Steps: 1,Scroll down and wait 7 secs. 2, Click download- install.
 *Subway Surfers Mod Apk* | [Download](https://www.mediafire.com/file/9l1kro91a3z0dzj/%255Bv2%255DSubway_Surfers_v1.95.0_%255BRebelModz%255D_mod_menu.apk/file/)
 *Tap To Be Rich Mod Apk 2.33* | [Download](https://mega.nz/#!AIgCySaQ!rjZfwRNKd-e-DErzTiFe-594rxuMeJGS2e8XJ7ifQig/)
-*Name Of Mod* | [Download](download link)
+*Vloger go viral Mod Apk* | [Download](https://bc.vc/oHK814h#/) Steps: 1, wait 5 secs. 2, Skip ad. 3, Go back to the ad page and -install install
 *Name Of Mod* | [Download](download link)
 *Name Of Mod* | [Download](download link)
 *Name Of Mod* | [Download](download link)
