@@ -33,6 +33,6 @@ Hacked Files👇   | Download Link👇
 *Vloger go viral Mod Apk* | [Download](https://bc.vc/oHK814h#/) Steps: 1, wait 5 secs. 2, Skip ad. 3, Go back to the ad page and -install install
 *pewdiepie simulator latest Apk* | [Download](https://android-1.com/en/file_4335-dw.HTML/) Steps: 1, scroll down and wait 5 secs. 🆑ick Download- install
 *idle miner mod apk latest* | [Download](http://www.mediafire.com/file/19bzazy7zeq24ab/idle-miner-mod_.apk/file/)
-*Name Of Mod* | [Download](download link)
-*Name Of Mod* | [Download](download link)
-*Name Of Mod* | [Download](download link)
+*AdVenture capitalist* | [Download](http://www.mediafire.com/file/s81ku1s9a6o93vu/AdVenture_Capitalist_v6.3.7-mod.apk/file/)
+** | [Download](download link)
+** | [Download](download link)
