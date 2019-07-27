@@ -24,9 +24,9 @@ StayBizzyz Repo: [bizzyzmodz](https://bizzyzmodz.github.io/BizzyzRepo/)
 
 Hacked Files👇   | Download Link👇  
 ------------    | -------------
-MineCraft v1.12.0.2 *Mod menu*| [Download](https://www.mediafire.com/file/khsrj66if9zunyf/minecraft_v1_12_0_28_original.apk/file/)
+*MineCraft v1.12.0.2* *Mod menu*| [Download](https://www.mediafire.com/file/khsrj66if9zunyf/minecraft_v1_12_0_28_original.apk/file/)
 *Last Day On Earth Mod Apk* | [Download](https://dl.gamemod.io/file/8LIF0F80AE6/) Steps: 1, go to download link. 2, Click Downlod And Wait 15 secs. 3, Download- Install
-*Name Of Mod* | [Download](download link)
+*Pixel Car Racer Mod Apk 1.1.62* | [Download](https://www.androidp1.com/file_4507-dw_apk.html/) Step:1, Click Download. 2, Click Download Again. 3, wait 5 secs And Download.- install 
 *Name Of Mod* | [Download](download link)
 *Name Of Mod* | [Download](download link)
 *Name Of Mod* | [Download](download link)
