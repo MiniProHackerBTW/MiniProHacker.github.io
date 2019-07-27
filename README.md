@@ -37,5 +37,5 @@ Hacked Files👇   | Download Link👇
 *Beach buggy racing 2 mod apk* | [Download](https://www.mediafire.com/file/6xjk6m1fokd6cke/bb-racing-2-mod_1.4.2-AndroidApk.apk/file/)
 *Battle Car Tycoon Mod Apk* | [Download](https://android-1.com/en/file_5818-dw.html/)
 *Dragon Ball Z: dokkan Mod Apk* | [Download](https://apkmody.io/games/dragon-ball-z-dokkan-battle.html?download/) Steps: 1, Scroll down and click download. 2, choose your mod click it and wait-install* | [Download]()
-** | [Download]()
+*Rider Mod Apk* | [Download](https://www.mediafire.com/file/g8aft8ermxuq55v/Rider_MOD_APK/file/)
 ** | [Download]()
