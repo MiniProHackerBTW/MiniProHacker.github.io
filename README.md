@@ -6,7 +6,7 @@ From Mod Menus to Full Hacked APK Files.**
 *I will try my best to keep the links Updated.
 If You Install One And It Doesn’t Work Please Contact Me At The Email below👇👇*
 
-All the links provided I Have Spent Time Downloading And Testing Them To Make Sure They Fully work 
+All the linkovided I Have Spent Time Downloading And Testing Them To Make Sure They Fully work 
 Smoothly And How They Should.
 
 *With help From StayBizzy The Files Are Easy to Download No Wasting Time With Survey
@@ -25,9 +25,9 @@ StayBizzyz Repo: [bizzyzmodz](https://bizzyzmodz.github.io/BizzyzRepo/)
 Hacked Files👇   | Download Link👇  
 ------------    | -------------
 *MineCraft v1.12.0.2* *Mod menu*| [Download](https://www.mediafire.com/file/khsrj66if9zunyf/minecraft_v1_12_0_28_original.apk/file/)
-*Last Day On Earth Mod Apk* | [Download](https://dl.gamemod.io/file/8LIF0F80AE6/) Steps: 1, go to download link. 2, Click Downlod And Wait 15 secs. 3, Download- Install
-*Pixel Car Racer Mod Apk 1.1.62* | [Download](https://www.androidp1.com/file_4507-dw_apk.html/) Step:1, Click Download. 2, Click Download Again. 3, wait 5 secs And Download.- install 
-*Name Of Mod* | [Download](download link)
+*Last Day On Earth Mod Apk* | [Download](https://dl.gamemod.io/file/8LIF0F80AE6/) Steps: 1, go to download link. 2, Click Downlod And Wait 15 secs. 3, Download- Install.
+*Pixel Car Racer Mod Apk 1.1.62* | [Download](https://www.androidp1.com/file_4507-dw_apk.html/) Step:1, Click Download. 2, Click Download Again. 3, wait 5 secs And Download- install. 
+*Jurassic Survival Mod apk* | [Download](https://android-1.com/en/file_4592-dw.html/) Steps: 1,Scroll down and wait 7 secs. 2, Click download- install.
 *Name Of Mod* | [Download](download link)
 *Name Of Mod* | [Download](download link)
 *Name Of Mod* | [Download](download link)
