@@ -34,5 +34,5 @@ Hacked Files👇   | Download Link👇
 *pewdiepie simulator latest Apk* | [Download](https://android-1.com/en/file_4335-dw.HTML/) Steps: 1, scroll down and wait 5 secs. 🆑ick Download- install
 *idle miner mod apk latest* | [Download](http://www.mediafire.com/file/19bzazy7zeq24ab/idle-miner-mod_.apk/file/)
 *AdVenture capitalist* | [Download](http://www.mediafire.com/file/s81ku1s9a6o93vu/AdVenture_Capitalist_v6.3.7-mod.apk/file/)
-** | [Download](download link)
-** | [Download](download link)
+*Beach buggy racing 2 mod apk* | [Download](https://www.mediafire.com/file/6xjk6m1fokd6cke/bb-racing-2-mod_1.4.2-AndroidApk.apk/file/)
+*Battle Car Tycoon Mod Apk* | [Download](https://android-1.com/en/file_5818-dw.html/)
