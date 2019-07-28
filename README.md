@@ -37,7 +37,7 @@ Hacked Files👇   | Download Link👇
 *Beach buggy racing 2 mod apk* | [Download](https://www.mediafire.com/file/6xjk6m1fokd6cke/bb-racing-2-mod_1.4.2-AndroidApk.apk/file/)
 *Battle Car Tycoon Mod Apk* | [Download](https://android-1.com/en/file_5818-dw.html/)
 *Dragon Ball Z: dokkan Mod Apk* | [Download](https://apkmody.io/games/dragon-ball-z-dokkan-battle.html?download/) Steps: 1, Scroll down and click download. 2, choose your mod click it and wait-install*
-*stick shadow war fight Mod Apk* | [Download](https://www.getjar.com/download-app/?u=%2Fdownload%2F961260%2F269158%2F%3Ft%3D1564326568&a=Stick%20War%20Legacy%20Hack&f=1256167_636143__StickWarLegacyHack.apk/)
+*stick shadow war fight Mod Apk* | [Download](https://apkhome.net/stick-shadow-war-fight-1-7-2-mod-apk-unlocked/)
 *Stick war legacy MOD apk* | [Download](http://getalinkandshare.com/r/?token=3706f219c6fe2fe2d18fb5d155f35c54834baf20&q=Stick%20War%3A%20Legacy%20Hack%201.11.31%20(MOD%2CUnlimited%20diamonds%2FGold)%20Apk%20%7C%20HackDl/) 
 ** | [Download]()
 ** | [Download]()
