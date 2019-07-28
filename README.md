@@ -38,6 +38,6 @@ Hacked Files👇   | Download Link👇
 *Battle Car Tycoon Mod Apk* | [Download](https://android-1.com/en/file_5818-dw.html/)
 *Dragon Ball Z: dokkan Mod Apk* | [Download](https://apkmody.io/games/dragon-ball-z-dokkan-battle.html?download/) Steps: 1, Scroll down and click download. 2, choose your mod click it and wait-install*
 *stick shadow war fight Mod Apk* | [Download](https://m.apkpure.com/stick-warriors-shadow-fighter/com.premiumtimes.stickwarriors/)
-*Stick war legacy MOD apk* | [Download](https://android-1.com/3381-stick-war-legacy-mod.html/) Steps: 1,scroll down and click stick war legacy mod. 2, wait 7 secs and click download-install*
+*Stick war legacy MOD apk* | [Download](https://apkhome.net/stick-shadow-war-fight-1-7-4-mod-apk-unlocked/) 
 ** | [Download]()
 ** | [Download]()
