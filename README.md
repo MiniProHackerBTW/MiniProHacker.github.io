@@ -27,7 +27,7 @@ Hacked Files👇   | Download Link👇
 *MineCraft v1.12.0.2* *Mod menu*| [Download](https://www.mediafire.com/file/khsrj66if9zunyf/minecraft_v1_12_0_28_original.apk/file/)
 *Last Day On Earth Mod Apk* | [Download](https://dl.gamemod.io/file/8LIF0F80AE6/) Steps: 1, go to download link. 2, Click Downlod And Wait 15 secs. 3, Download- Install.
 *Pixel Car Racer Mod Apk 1.1.62* | [Download](https://www.happymod.com/pixel-car-racer-mod/com.StudioFurukawa.PixelCarRacer/) Step:1, Click Download. 2, Click Download Again. 3, wait 5 secs And Download- install. 
-*Jurassic Survival Mod apk* | [Download](https://android-1.com/en/file_4592-dw.html/) Steps: 1,Scroll down and wait 7 secs. 2, Click download- install.
+*Jurassic Survival Mod apk* | [Download](https://www.4sync.com/mobile/E6WhLXoD/Jurassic-Survival-MOD-1127-www.html/) Steps: 1,Scroll down and wait 7 secs. 2, Click download- install.
 *Subway Surfers Mod Apk* | [Download](https://www.mediafire.com/file/9l1kro91a3z0dzj/%255Bv2%255DSubway_Surfers_v1.95.0_%255BRebelModz%255D_mod_menu.apk/file/)
 *Tap To Be Rich Mod Apk 2.33* | [Download](https://mega.nz/#!AIgCySaQ!rjZfwRNKd-e-DErzTiFe-594rxuMeJGS2e8XJ7ifQig/)
 *Vloger go viral Mod Apk* | [Download](https://bc.vc/oHK814h#/) Steps: 1, wait 5 secs. 2, Skip ad. 3, Go back to the ad page and -install install
