@@ -39,5 +39,5 @@ Hacked Files👇   | Download Link👇
 *Dragon Ball Z: dokkan Mod Apk* | [Download](https://apkmody.io/games/dragon-ball-z-dokkan-battle.html?download/) Steps: 1, Scroll down and click download. 2, choose your mod click it and wait-install*
 *stick shadow war fight Mod Apk* | [Download](https://apkhome.net/stick-shadow-war-fight-1-7-2-mod-apk-unlocked/)
 *Stick war legacy MOD apk* | [Download](http://getalinkandshare.com/r/?token=3706f219c6fe2fe2d18fb5d155f35c54834baf20&q=Stick%20War%3A%20Legacy%20Hack%201.11.31%20(MOD%2CUnlimited%20diamonds%2FGold)%20Apk%20%7C%20HackDl/) 
-*hungry shark world MOD Apk* | [Download](https://apkring.com/hungry-shark-world-mod-apk/downnow/4916/) steps: 1,scrall down and click download. 2,wait 7 secs and download. 3, download OBB data. 4, go es file explorer and and extract OBB data to OBB file.5, download apk-install
+*hungry shark world MOD Apk* | [Download](https://www.androidp1.com/en/file_3161-dw_apk.html/) steps: 1,scrall down and click download. 2,wait 7 secs and download. 3, download OBB data. 4, go es file explorer and and extract OBB data to OBB file.5, download apk-install
 ** | [Download](),
