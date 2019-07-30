@@ -42,7 +42,7 @@ Hacked Files👇   | Download Link👇
 *hungry shark world MOD Apk* | [Download](https://apkmody.io/games/hungry-shark-world-2.html?download/) steps: 1, scroll down and click download. 2, scroll down and click your version and 🆑ick the green button below it-install
 *driving school 2016 MOD Apk* | [Download](https://m.apkpure.com/driving-school-2016/com.ovilex.drivingschool2016/download?from=details/)
 *Pewdiepie SIM OBB File* | [Download](https://www.mediafire.com/file/wrt7ebcdnwkfe1w/PewDiePie_Obb_1.41.0_By__Spipsy.zip/file/)
-*Adventure communist Mod Apk* | [Download](https://apkpedia.co/file/7E2781315BD5/)
+*Adventure communist Mod Apk* | [Download](https://apkpedia.co/file/7E2781315BD5/) steps: 1, Wait 20 secs 🆑ick download-install
 ** | [Download]()
 ** | [Download]()
 ** | [Download]()
