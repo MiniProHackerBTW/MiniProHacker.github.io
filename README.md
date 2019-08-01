@@ -44,7 +44,7 @@ Hacked Files👇   | Download Link👇
 *Pewdiepie SIM OBB File* | [Download](https://www.mediafire.com/file/wrt7ebcdnwkfe1w/PewDiePie_Obb_1.41.0_By__Spipsy.zip/file/)
 *tap tap breaking mod apk* | [Download](https://www.mediafire.com/file/p2pg5ggz6vubnb2/com.mod.tap-tap-breaking-break-everything-clicker-game-1-66-mod1.66.apk/file/)
 *maybe clicker Mod Apk* | [Download](https://m.apkpure.com/maybe-clicker/com.Naccoon.CP/download?from=details/)
-** | [Download]()
+*Boxing Star Mod Menu Apk NEED OBB file* | [Download](https://2upload.io/file/KVDLVFXLKEW/)
 ** | [Download]()
 ** | [Download]()
 ** | [Download]()
