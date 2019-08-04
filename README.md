@@ -24,7 +24,7 @@ StayBizzyz Repo: [bizzyzmodz](https://bizzyzmodz.github.io/BizzyzRepo/)
 
 Hacked Files👇   | Download Link👇  
 ------------    | -------------
-*MineCraft v1.12.0.2* *Mod menu*| [Download](https://www.mediafire.com/file/khsrj66if9zunyf/minecraft_v1_12_0_28_original.apk/file/)
+*MineCraft v1.12.0.2* *Mod menu*| [Download](https://www.mediafire.com/file/oq4rtq7q3e3ydt5/Phantom_v1.0_by_JVitorCraft.zip/file/) 
 *Last Day On Earth Mod Apk* | [Download](https://dl.gamemod.io/file/8LIF0F80AE6/) Steps: 1, go to download link. 2, Click Downlod And Wait 15 secs. 3, Download- Install.
 *Pixel Car Racer Mod Apk 1.1.62* | [Download](https://www.happymod.com/pixel-car-racer-mod/com.StudioFurukawa.PixelCarRacer/) Step:1, Click Download. 2, Click Download Again. 3, wait 5 secs And Download- install. 
 *Jurassic Survival Mod apk* | [Download](https://www.4sync.com/mobile/E6WhLXoD/Jurassic-Survival-MOD-1127-www.html/) Steps: 1,Scroll down and wait 7 secs. 2, Click download- install.
