@@ -45,6 +45,6 @@ Hacked Files👇   | Download Link👇
 *tap tap breaking mod apk* | [Download](https://www.mediafire.com/file/p2pg5ggz6vubnb2/com.mod.tap-tap-breaking-break-everything-clicker-game-1-66-mod1.66.apk/file/)
 *maybe clicker Mod Apk* | [Download](https://m.apkpure.com/maybe-clicker/com.Naccoon.CP/download?from=details/)
 *Boxing Star Mod Menu Apk NEED OBB file* | [Download](https://apkpedia.co/file/A9F3F517A240/) Steps: 1,wait 20 sec click download-install
-*Boxing star mod OBB file* | [Download](https://2upload.io/file/84EKXFZ06GO/) Steps: 1, scroll down and click Create Download link. 2,wait 7 secs and now click download-install.
+*Boxing star mod OBB file* | [Download](https://apkpedia.co/file/1FF0BBF2E4B8/) Steps: 1, wait 20 secs and download-install
 *granny mod menu latest* | [Download](http://www.mediafire.com/file/ta27vh83l2b5466/Granny_v1.7.3_-_NullZerep_r2.v2.0.0.apk/file!/) 
 ** | [Download]()
