@@ -47,7 +47,7 @@ Hacked Files👇   | Download Link👇
 *Boxing Star Mod Menu Apk NEED OBB file* | [Download](https://apkpedia.co/file/A9F3F517A240/) Steps: 1,wait 20 sec click download-install
 *Boxing star mod OBB file* | [Download](https://apkpedia.co/file/1FF0BBF2E4B8/) Steps: 1, wait 20 secs and download-install
 *granny mod menu latest* | [Download](http://www.mediafire.com/file/ta27vh83l2b5466/Granny_v1.7.3_-_NullZerep_r2.v2.0.0.apk/file!/) 
-*Hooked.inc Mod Apk* | [Download](https://android-1.com/file_4972-dw.html/) 
+*Hooked.inc Mod Apk* | [Download](https://android-1.com/en/4972-hooked-inc-fisher-tycoon-mod.html/) Steps: 1,scrall down and click green button that says "Download hooks mod apk" click it. 2,scrall down and wait 5 secs and click download. - Insall
 ** | [Download]()
 ** | [Download]()
 ** | [Download]()
